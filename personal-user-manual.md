@@ -25,3 +25,53 @@ Above all, I hate hypocrites. If you hate me, I don't care, just don't act like 
 1. I don't care. - This is not true, I simply have a hard time with others' emotions. it's not that I don't care, I just don't immediately understand. If you need me to understand something, talk about it and I will know how to react.
 2. Silence means I'm angry. - I am often silent simply because I don't have anything to say, if you feel like I'm avoiding you, I am not, I just don't have anything to talk about, though if you want to talk to me, I'm all ears.
 3. I don't like you. - I lack some basic social skills. Sometimes I will say things in a way that makes it sound like I dislike you or am trying to offend you. That is not the case 95% of the time, I simply say things the way it makes sense in my head, if you take offense, it's generally a misunderstanding.
+
+#Chapter 2
+
+##Health, Work, Play, Love
+###Definition, Measure, Analysis, Summary
+###Health
+##Workview and Lifeview compass
+###Value Statement
+##Good Time Journal Entries
+1. I made 2nd in regionals in high school diving, qualifying for state
+2. I broke both diving records in high school
+3. Graduating high school
+4. Setting up my College plan and seeing that it's possible
+5. Getting married
+6. Having a child
+7. Seeing my child learn
+8. Seeing myself learn
+9. 
+10
+##Mind Maps
+Gonna put my photos of my mind maps here
+###Engagement
+###Energy
+###flow
+##Odyssey plans
+###Plan A
+The Realistic Plan
+Graduate college with a job lined up for me.
+Be making at least 120k a year in a programming job.
+have switched jobs 2 or three times for payraises.
+Develop Games on the side.
+Live in a house that I own.
+get wife the help she needs with her health
+Live in Texas
+be a small time streamer
+
+###Plan B
+Fallback
+Be a stay-at-home dad.
+Support wife with her art, book, and herbalist programs.
+Stay with parents until we can afford a house of our own.
+
+###Plan C
+
+Infinite Money Plan
+Live a life of leisure.
+Pay people to work with me on developing my games.
+develop 2 or 3 popular games.
+Get wife the help she needs with her health
+stream the games that I create.
